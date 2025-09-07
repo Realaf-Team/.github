@@ -1,4 +1,4 @@
-# Hi, I'm Realaf Team
+# Hi, We're Realaf Team
 #### A team that like to make some things about minecraft, or other useful
 
 ## WebSite
